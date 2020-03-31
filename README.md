@@ -1,5 +1,5 @@
 # intro
-[直达地址](https://zhangzihaodt.github.io/intro/)
+[直达地址](https://shuyaohe.github.io/resume2020/)
 # resume
 # resume
 # intro
